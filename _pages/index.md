@@ -7,7 +7,7 @@ permalink: /
 
 原因は自分にある。という7人組ダンス＆ボーカルグループに所属しています！
 
-
+![image](/GHPages_WebSite/assets/images/Mokudai Kazuto.png)
 
 ---
 
